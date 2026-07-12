@@ -1,5 +1,5 @@
 
-
+<p align="center">
 ![](https://raw.githubusercontent.com/komaedie/komaedie/refs/heads/main/Untitled557_20250915040124.png)
 
 
