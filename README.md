@@ -5,10 +5,10 @@
 
 
 <p align="center">
-𐂯 he/him . nate / doppio</p>
+𐂯 he/him . nate / doppio 18</p>
 <p align="center">
 sign ata
 </p>
 <p align="center">
-  if you are a proshipper/darkshipper/necro kill your fucking self nobody will ever love you thank you
+  if you are a proshipper/darkshipper/pedophile dni thank you
 </p>
