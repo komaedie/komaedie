@@ -1,10 +1,9 @@
 
 <p align="center">
-![](https://raw.githubusercontent.com/komaedie/komaedie/refs/heads/main/Untitled557_20250915040124.png)
+<img width="450" height="256" alt="80bf57aa0e62ca95fadada577a6a428f (1)" src="https://github.com/user-attachments/assets/ab08bbda-234a-467c-a848-00765789c6d8" />
 
 
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=komaedie)
 <p align="center">
 𐂯 he/him . nate / doppio</p>
 <p align="center">
