@@ -14,3 +14,5 @@ sign ata
   <p align="center">
   if you are a proshipper/darkshipper/pedophile dni thank you
 </p>
+
+![](https://komarev.com/ghpvc/?username=komaedie&color=lightgrey)
