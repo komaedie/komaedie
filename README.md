@@ -10,5 +10,7 @@
 sign ata
 </p>
 <p align="center">
+  art tiktok @natepokemon
+  <p align="center">
   if you are a proshipper/darkshipper/pedophile dni thank you
 </p>
