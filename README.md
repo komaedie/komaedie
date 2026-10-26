@@ -1,23 +1,26 @@
+<p align="center"> <img width="480" height="270" alt="joker-persona-5" src="https://github.com/user-attachments/assets/6c1904ac-072e-4bad-bb35-da1e146416c4" />
 
-<p align="center">
-<img width="450" height="256" alt="80bf57aa0e62ca95fadada577a6a428f (1)" src="https://github.com/user-attachments/assets/ab08bbda-234a-467c-a848-00765789c6d8" />
 
 
  <p align="center">
-<img width="103" height="60" alt="d5afmrf-5b2e6344-c00b-4579-b68b-0083f09baf90" src="https://github.com/user-attachments/assets/146f3a9e-8bb1-4160-bf99-3f7b5c7c6036" />
-<img width="97" height="55" alt="d757iql-613820ae-373e-40c4-bf05-4043ef6ccfec" src="https://github.com/user-attachments/assets/199cb468-e6fd-49c0-868f-7f78ecd9cbd0" /><img width="99" height="56" alt="d1kc0wz-a868c4c5-9624-4097-a13f-6bb2965136a3" src="https://github.com/user-attachments/assets/b3f10863-e1f2-4953-9f04-996160dc5844" />
+<img width="103" height="60" alt="d5afmrf-5b2e6344-c00b-4579-b68b-0083f09baf90" src="https://github.com/user-attachments/assets/146f3a9e-8bb1-4160-bf99-3f7b5c7c6036" /> <img width="95" height="56" alt="tumblr_2bd0732e3c3012adf92f32ac65ac6a4f_c70dbf0d_100" src="https://github.com/user-attachments/assets/8947e3e2-219c-4d1e-826b-c00c82541775" /><img width="99" height="56" alt="tumblr_43f402b62c675ba28ee9138bc3f978c1_9ddd417f_100" src="https://github.com/user-attachments/assets/341c3009-8dca-4475-8eb3-7deb0a4bc98e" /><img width="99" height="56" alt="dd5fqe0-3303d4c9-9d44-4fc3-95b8-77e0e4eb3ce8" src="https://github.com/user-attachments/assets/fc21fe70-8213-4ff1-98da-45e12c20aa63" /><img width="103" height="59" alt="tumblr_67f2335bbf84fdeba4217ad32f337949_05f3c503_250" src="https://github.com/user-attachments/assets/f5fc259e-813f-414a-a1dd-822c2f089c46" />
+
+
+
+
 
 <p align="center">
 𐂯 he/him . nate / doppio 18</p>
 <p align="center">
 sign ata
+<p align="center">
+add me
 </p>
 <p align="center">
   art tiktok @natepokemon
   <p align="center">
 proshippers, and -15 dni</p>
 <p align="center">
-<img width="150" height="20" alt="tumblr_933cd838c400aa4ba3638d56c84cf136_7ada02f7_250" src="https://github.com/user-attachments/assets/7ac5fef6-dde7-4838-af80-5096c3ddaa0a" />
 
 
-   ![](https://komarev.com/ghpvc/?username=komaedie&color=lightgrey)
+<img width="250" height="33" alt="tumblr_de7fdf324ebd5a680240181f1d09684e_88532c29_250" src="https://github.com/user-attachments/assets/7e8605a9-2247-4991-8c29-52d8cc65fcc9" />
